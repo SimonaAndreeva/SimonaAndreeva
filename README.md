@@ -7,7 +7,7 @@
 
 - :black_nib: I'm studying Graphic Design in SoftUni.
 
-- :mortar_board: In 9th grade I was accepted in The University of Veliko Tarnovo.
+***// In 9th grade I was accepted in The University of Veliko Tarnovo.***
 
 ## Fun fact: I have a twin:
  
