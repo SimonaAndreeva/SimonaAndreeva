@@ -10,7 +10,7 @@
 ***// In 9th grade I was accepted in The University of Veliko Tarnovo.***
 
 ## You want to reach me?
-Here you can find all of my social media accounts on my LinkTree: https://www.linkedin.com/in/simona-andreeva-629049230
+You can find all of my social media accounts on my LinkTree: https://www.linkedin.com/in/simona-andreeva-629049230
 
 ## Fun fact: I have a twin:
  
