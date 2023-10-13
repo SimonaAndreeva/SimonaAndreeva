@@ -1,20 +1,20 @@
 
 # Hi! I'm Simona Andreeva 
 
-**19 years old & from Bulgaria.**
+**20 years old & from Bulgaria.**
 
-- :computer: I'm majoring in informatics in NBU.
+- :computer: I'm majoring in Informatics at NBU.
 
 - :black_nib: I'm studying Graphic Design in SoftUni.
 
-***// In 9th grade I was accepted in The University of Veliko Tarnovo.***
+***// In 9th grade I was accepted into The University of Veliko Tarnovo.***
 
 ## You want to reach me?
 You can find all of my social media accounts on my LinkTree: https://www.linkedin.com/in/simona-andreeva-629049230
 
 ## Fun fact: I have a twin:
  
-:2nd_place_medal: We won 2th place at the National Olympiad of Information Technologies 2018
+:2nd_place_medal: We won 2nd place at the National Olympiad of Information Technologies 2018
  
 **&**
  
