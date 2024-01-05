@@ -3,13 +3,17 @@
 
 **20 years old & from Bulgaria.**
 
-- :computer: I'm majoring in Informatics at NBU.
+- :computer: I'm majoring in Informatics & Web Design at NBU.
 
-- :black_nib: I'm studying Graphic Design in SoftUni.
+- :computer: I'm currently a Web Developer at JT Design.
+
+- :woman_teacher: I'm a student teacher at SoftUni Kids.
+
+- :woman_student: I've achieved a diploma in UI&UX Designer.
 
 ***// In 9th grade I was accepted into The University of Veliko Tarnovo.***
 
-## You want to reach me?
+## Would you like to reach me?
 You can find all of my social media accounts on my LinkTree: https://www.linkedin.com/in/simona-andreeva-629049230
 
 ## Fun fact: I have a twin:
@@ -26,6 +30,6 @@ You can find all of my social media accounts on my LinkTree: https://www.linkedi
  
  **&**
  
-:medal_sports: We won 6th place at the The International Contest of Children Engineering Teams 2018 in Russia
+:medal_sports: We won 6th place at the International Contest of Children Engineering Teams 2018 in Russia
 
 
