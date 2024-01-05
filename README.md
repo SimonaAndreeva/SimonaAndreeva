@@ -3,7 +3,7 @@
 
 **20 years old & from Bulgaria.**
 
-- :computer: I'm majoring in Informatics & Web Design at NBU.
+- :fountain_pen: I'm majoring in Informatics & Web Design at NBU.
 
 - :computer: I'm currently a Web Developer at JT Design.
 
