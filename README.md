@@ -1,7 +1,7 @@
 
 # Hi! I'm Simona Andreeva 
 
-**21 years old & from Bulgaria.**
+**22 years old & from Bulgaria.**
 
 - :fountain_pen: I'm majoring in Informatics & Web Design at NBU.
 
