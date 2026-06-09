@@ -5,13 +5,10 @@
 
 - :fountain_pen: I'm majoring in Informatics & Web Design at NBU.
 
-- :computer: I'm currently a Web Developer at JT Design.
+- :computer: I'm currently a Senior UI/UX Designer at Fast Track.
 
 - 🥇 Initiator and Head Organizer of Digitalen Maraton at NBU.
 
-- :woman_teacher: I'm a student teacher at SoftUni Kids.
-
-- :woman_student: I've achieved a diploma in UI&UX Designer.
 
 ***// In 9th grade I was accepted into The University of Veliko Tarnovo.***
 
