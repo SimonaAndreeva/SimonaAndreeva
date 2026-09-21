@@ -5,10 +5,7 @@
 
 - :fountain_pen: I'm majoring in Informatics & Web Design at NBU.
 
-- :computer: I'm currently a Senior UI/UX Designer at Fast Track.
-
 - 🥇 Initiator and Head Organizer of Digitalen Maraton at NBU.
-
 
 ***// In 9th grade I was accepted into The University of Veliko Tarnovo.***
 
